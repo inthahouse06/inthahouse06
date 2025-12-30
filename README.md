@@ -1,7 +1,7 @@
 ## Oh hey! 👋
 
 I'm not sure how you found your way to my github profile but fancy to e-meet you!
-I build digital things for a living out of Canada, Montreal. The 💰 I earn from these stuffs are used to refill my ever dwindling supply of coffee beans, maintain a fancy gym membership, and to funds some of my expensive hobbies which include trying my luck at the black jack table 🤣
+I build digital things for a living out of Canada, Montreal. The 💰 earned from these stuff are used to refill my ever dwindling supply of coffee beans, maintain a fancy gym membership, and to funds some of my expensive hobbies which include trying my luck at the black jack table 🤣
 
 
 
