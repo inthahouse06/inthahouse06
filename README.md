@@ -9,3 +9,4 @@ If you enjoy BBQ 🥩🤤 or tv show dramas, feel free to connect on any of thes
 
 ---
 [![Linkedin](https://upload.wikimedia.org/wikipedia/commons/8/81/LinkedIn_icon.svg)](https://www.linkedin.com/in/alann13/)
+[![X](https://pbs.twimg.com/profile_images/1955359038532653056/OSHY3ewP_bigger.jpg)](https://x.com/inthahouse06)
